@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @wasupmap
-- 👀 I’m interested in learning languages (human's langauges and programming languages alike), aviation, microbiology, technology, and ofcourse, challenging myself each and everyday!
-- 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on planet earth
 - 📫 How to reach me: be sure to be there at the right time, and the right place!
 
